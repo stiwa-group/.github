@@ -1,1 +1,1 @@
-[![Video]()](https://stiwa.com/fileadmin/user_upload/content/manufacturing/header_manufacturing.mp4)
+[![Video]()](https://www.stiwa.com/fileadmin/user_upload/content/manufacturing/header_manufacturing.mp4)
